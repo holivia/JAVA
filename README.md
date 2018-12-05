@@ -1,2 +1,2 @@
 # java
-studying...
+studying...about every thing
